@@ -1,9 +1,13 @@
 Grupo 01
 
 Luiz Eduardo Medeiros De Oliveira
+
 Pablo Yuri De Souza Lopes
+
 Suzana Lopes de Azevedo
+
 Vicente Romani Remor
+
 Vinícius Hengler Rodrigues
 
 
